@@ -1,6 +1,6 @@
 <h1>
   
-  `Nabolsi Yassine - (Avetali) `
+  `Naboulsi Yassine - (Avetali) `
   
 </h1>
 
